@@ -1,1 +1,2 @@
-je m'appelle Farid Yacoubou
+je m'appelle Farid Yacoubou.
+Je suis en L2 IRT G1
